@@ -1,2 +1,3 @@
-![XKZS_ICON](https://user-images.githubusercontent.com/72755791/205442324-735f63ba-b84e-47b3-b351-1e9cb97451ee.png)
-APP的图标
+![XKZS_ICON](https://upload.cc/i1/2024/03/08/sxvR4g.png)
+
+APP的图标2024
