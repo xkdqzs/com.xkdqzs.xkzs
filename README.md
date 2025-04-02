@@ -2,4 +2,4 @@
 
 APP图标
 
-「小康助手网页版」：https://xkzsappweb.wordpress.com 
+「小康助手网页版」：https://xkzs.webnode.page/
